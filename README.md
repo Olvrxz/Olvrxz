@@ -8,6 +8,6 @@ Meu nome é Elaine Oliveira
   
 ### Você pode entrar em contato comigo :mailbox
 
-@gmail.com
+000012256359sp@al.educacao.sp.gov.br
 @elaineolvrxz.
 Olvrxz/Olvrxz is a ✨ special ✨ repositor
